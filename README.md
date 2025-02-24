@@ -1,1 +1,1 @@
-# 6-oy-Imtihon
+# exam2Oy
